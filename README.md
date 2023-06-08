@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vishnutha
-- 👀 I’m 2nd year student pursuing B.tech+M.tech degree from IIIT Bangalore
+- 👀 I’m $th year student pursuing B.tech+M.tech degree at IIIT Bangalore
 - 🌱 I’m a Computer Science student 
 - 📫 My LinkedIn profile
 https://www.linkedin.com/in/vishnutha-sheela-838591205/
